@@ -17,5 +17,5 @@ I like this series because of its beautiful storytelling, in depth fantasy eleme
 
 > "The journey doesn't end when the adventure is over."
 
-## My Rating
+## My Personal Rating
 **10/10**
